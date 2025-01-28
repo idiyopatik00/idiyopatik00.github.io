@@ -1,0 +1,1 @@
+# idiyopatik00.github.io
